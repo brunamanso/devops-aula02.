@@ -1,3 +1,4 @@
 the rock
-nicole kidman
+sandra bullock
 adan sendler
+tom cruise
